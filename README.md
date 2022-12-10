@@ -1,2 +1,2 @@
-# White-Theme-Discord-
+# White-Theme-V1
 
